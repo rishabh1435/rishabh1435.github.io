@@ -1,5 +1,3 @@
-# rishabh1435.github.io
-Website Test
 
 
 CUSTOMER PRODUCT RESEARCH & COMPARISON GUIDE
